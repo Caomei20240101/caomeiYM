@@ -4,4 +4,5 @@
 
 ## 网址
 
-- https://motomo66.top
+[- ]
+[草莓宇宙入口1(点这里进入)]（https://motomo66.top）[https://motomo66.top]
