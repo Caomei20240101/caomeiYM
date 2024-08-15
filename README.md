@@ -4,4 +4,4 @@
 
 ## 网址
 
-<p style="color:blue;">## [草莓宇宙入口1【点这里进入】]</p>(https://motomo66.top)
+## <p style="color:blue;">[草莓宇宙入口1【点这里进入】]</p>(https://motomo66.top)
